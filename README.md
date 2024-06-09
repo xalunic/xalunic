@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @xalunic
+- 👀 I’m interested in Roblox game, website development and more. 
+- 🌱 I’m currently learning website design
+- 💞️ I’m looking to collaborate on nothing rn
+- 📫 How to reach me: devthebailey@gmail.com
+- 😄 Pronouns: they/them
+- ⚡ Fun fact: nothing

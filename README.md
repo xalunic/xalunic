@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning website design
 - 💞️ I’m looking to collaborate on nothing rn
 - 📫 How to reach me: devthebailey@gmail.com
-- 😄 Pronouns: they/them
-- ⚡ Fun fact: nothing
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I love someone very much
